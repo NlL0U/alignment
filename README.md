@@ -1,8 +1,8 @@
 # alignment - - ──★ ˙🧷 ̟ !! ![image](https://github.com/user-attachments/assets/f965d71f-501c-4bec-8545-365d9117c941)
 
-:# 𝚠𝚑𝚊𝚝 𝚝𝚑𝚎 𝚑𝚎𝚕𝚕 ❰❰﹒♡
+:# 𝚊𝚕𝚕 𝚝𝚑𝚎 𝚠𝚘𝚛𝚕𝚍'𝚜 𝚊 𝚜𝚝𝚊𝚐𝚎 ❰❰﹒♡
 
- ![image](https://64.media.tumblr.com/2e5b8ec75c12df4d7abe0c74fe25e2e1/7037472c74aa684d-69/s1280x1920/ba10a06f5106635c630f24fd56346697f9d4cc82.pnj)
+ ![image](https://i.pinimg.com/564x/bd/09/bf/bd09bfb051120b29ec76008f158c565f.jpg)
   ![image](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/d5f3956d46975a7f-e5/s75x75_c1/dfa26f348c7fb2c219171e94c2980fdec37aba71.gifv)          .           .    
   ![image](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/d5f3956d46975a7f-e5/s75x75_c1/dfa26f348c7fb2c219171e94c2980fdec37aba71.gifv)     .           .            ![image](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/d5f3956d46975a7f-e5/s75x75_c1/dfa26f348c7fb2c219171e94c2980fdec37aba71.gifv)
 
@@ -17,7 +17,7 @@
  ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ⁱⁿᵗ ⁱᶠ ʸᵒᵘ'ᵛᵉ ʳᵉᵃᵈ ᵗʰⁱˢ ᵃⁿᵈ ᵘⁿᵈᵉʳˢᵗᵒᵒᵈ ᵐʸ ᴰᴺᴵ'ˢ, ᴵ ᵈᵒⁿ'ᵗ ᵇⁱᵗᵉ :³
  
  
- ![image](https://64.media.tumblr.com/fcffc21afb821e8017dfc185d7de8384/f3a534c7fe383999-54/s1280x1920/ebd41f84c945220d94407d53198b4c432c6bc603.jpg)
+ ![image](https://i.pinimg.com/736x/d2/58/2e/d2582ebe246bc19da5c5eadd4d2109a9.jpg)
 
  that's about it.
 
