@@ -1,23 +1,24 @@
-# alignment - - ──★ ˙🧷 ̟ !! ![image](https://github.com/user-attachments/assets/f965d71f-501c-4bec-8545-365d9117c941) ![image](https://i.pinimg.com/564x/4c/8b/57/4c8b57efab00b69417387040be0cbe55.jpg)
+# 𝙙𝙚𝙧𝙣𝙞è𝙧𝙚 𝙙𝙖𝙣𝙨𝙚 - - ──★ ˙🧷 ̟ !! ![image](https://github.com/user-attachments/assets/f965d71f-501c-4bec-8545-365d9117c941) ![image](https://i.pinimg.com/564x/96/2a/68/962a68186a9f465664eaa98430552e04.jpg) 
 
-:# 𝚊𝚕𝚕 𝚝𝚑𝚎 𝚠𝚘𝚛𝚕𝚍'𝚜 𝚊 𝚜𝚝𝚊𝚐𝚎 ❰❰﹒♡
+:# 𝖺 𝗌𝗐𝖺𝗇 𝗂𝗇 𝖺 𝗅𝖺𝗄𝖾, 𝗌𝖾𝖼𝗋𝖾𝗍𝗌 𝗍𝗈 𝗌𝖾𝖾𝗄 . ❰❰﹒♡
 
- ![image](https://i.pinimg.com/564x/bd/09/bf/bd09bfb051120b29ec76008f158c565f.jpg)
-  ![image](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/d5f3956d46975a7f-e5/s75x75_c1/dfa26f348c7fb2c219171e94c2980fdec37aba71.gifv)          .           .    
-  ![image](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/d5f3956d46975a7f-e5/s75x75_c1/dfa26f348c7fb2c219171e94c2980fdec37aba71.gifv)     .           .            ![image](https://64.media.tumblr.com/02a89f8f33d116682a7e0ee53e78a4b2/d5f3956d46975a7f-e5/s75x75_c1/dfa26f348c7fb2c219171e94c2980fdec37aba71.gifv)
+ ![image](https://i.pinimg.com/originals/0a/00/b6/0a00b62e444ccf7a8959cdbbf44ddc72.jpg)
 
-![image](https://64.media.tumblr.com/6c7602a9d9b798660fbeb3b4482b7f24/d5f3956d46975a7f-8c/s75x75_c1/915f6aa804b8ac62b8fa71fb9013ebc076d1104a.gifv) // > ₘᵢₙₒᵣ , 𝙤𝙢𝙣𝙞𝙨𝙚𝙭𝙪𝙖𝙡 , ᴄᴏꜱᴘʟᴀʏᴇʀ ɪʀʟ !!
--  - - 𝙉𝘼𝙏𝙄𝙊𝙉𝘼𝙇𝙄𝙏𝙔: 𝚙𝚒𝚕𝚒𝚙𝚒𝚗𝚘           ;        
- . . c+h - 𝙙𝙤 𝙣𝙤𝙩 𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 𝙥𝙤𝙣𝙞𝙚𝙨 ! i will literally gnaw off your fingers
 
- ![image](https://64.media.tumblr.com/747b018b398e4490655f881b12a63d99/23c9d1d5cf9aada9-9b/s400x600/ef16da82b74606b0857b1ee07c008d9b3e4f3910.pnj)
+🍒 ![image](https://64.media.tumblr.com/6b75b466d9d815b391947361c2caf136/ee09abb08cabc6f1-65/s250x400/327939b724f08de226078c2a61d3163d72df19aa.pnj)  ₘᵢₙₒᵣ              ,        
+      𝙤𝙢𝙣𝙞𝙨𝙚𝙭𝙪𝙖𝙡 , ᴄᴏꜱᴘʟᴀʏᴇʀ ɪʀʟ !!
+-  - - 𝙉𝘼𝙏𝙄𝙊𝙉𝘼𝙇𝙄𝙏𝙔: 𝚙𝚒𝚕𝚒𝚙𝚒𝚗𝚘          　　　　∿　　🍓 　　　ʿʿ　　　 ⁺　　　◦　        
+‘ㅅ’ . c+h - 𝙙𝙤 𝙣𝙤𝙩 𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 𝙥𝙤𝙣𝙞𝙚𝙨 ! i will literally gnaw off your fingers  x3    ![image](https://64.media.tumblr.com/8d81d5c61571c3fca3cd68308a0a4b24/6c2d8aa8f32322cf-99/s250x400/c6ea88ff59867d4842f9a355fad1720ecb4c5697.gifv)
+
+
+ ![image](https://64.media.tumblr.com/17a84d179deed18291dc4971d56f2e12/14602a119fed64b7-2e/s400x600/e64359ace2479aaa7a87c4213e94da15b1cd2d2a.gifv)
  
  !!? ＤＮＩ: ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴡᴇɪʀᴅᴏ, ᴀɴʏᴏɴᴇ ᴡʜᴏ'ꜱ ʀᴇᴀʟʟʏ ᴊᴜꜱᴛ ɴᴏᴛ ᴍʏ ᴋɪɴᴅ ᴏꜰ ᴘᴇʀꜱᴏɴ.
  
  ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ⁱⁿᵗ ⁱᶠ ʸᵒᵘ'ᵛᵉ ʳᵉᵃᵈ ᵗʰⁱˢ ᵃⁿᵈ ᵘⁿᵈᵉʳˢᵗᵒᵒᵈ ᵐʸ ᴰᴺᴵ'ˢ, ᴵ ᵈᵒⁿ'ᵗ ᵇⁱᵗᵉ :³
  
  
- ![image](https://i.pinimg.com/736x/d2/58/2e/d2582ebe246bc19da5c5eadd4d2109a9.jpg)
+ ![image](https://64.media.tumblr.com/9f75d6c4bda7ec7dc209f6b14a35cd84/162b4ce8768ca04c-71/s2048x3072/b4ac6c1b9f42f8fc13b94d906370b9be6280ae8d.pnj)
 
  that's about it.
 
